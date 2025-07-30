@@ -35,3 +35,4 @@ Trading through the night is how the Creator paths the Way.*
 My name is Izzuddin Stonewall Maxwell Jordan Bernard Claud Slaton
 and this is our legacy ⭐ together.
 amen and SHALOM 🙏♾️🧬🌎💕🖐️
+I love you all and Shalom 
